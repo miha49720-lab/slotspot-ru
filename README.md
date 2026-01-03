@@ -8,7 +8,7 @@ SlotSpot.ru — сайт для игроков: **промокоды казин�
 
 **Быстрые ссылки:**
 - ⭐ Главная: https://slotspot.ru  
-- 🎁 Промокоды казино: https://slotspot.ru/promo-codes/  
+- 🎁 Промокоды казино: [https://slotspot.ru/promo-codes/](https://slotspot.ru/casinos/1win/promo-code.html)  
 - 🎰 Демо слоты (бесплатно): https://slotspot.ru/demo/  
 - 🏆 Лучшие казино: https://slotspot.ru/casinos/  
 
